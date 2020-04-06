@@ -1,0 +1,2 @@
+# STALIN
+NAROD
